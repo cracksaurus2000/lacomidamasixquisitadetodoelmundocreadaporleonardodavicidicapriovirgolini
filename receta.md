@@ -1,0 +1,1 @@
+pones la leche en el plato hondo y luego le pones los konfleis "no me patrocinaron jejeje"y luego picas una salchica "deve de estar cruda si no no sabe rico jajajaja" luego metes las sachicha al plato con el cereal y la leche y metes la cuchara y listooooo
